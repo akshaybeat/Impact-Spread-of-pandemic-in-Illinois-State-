@@ -1,1 +1,1 @@
-# Impact-Spread-of-pandemic-in-Illinois-State-
+# Impact-and-Spread-of-pandemic-in-Illinois-State
